@@ -39,4 +39,7 @@ This is how you can remove such purchase prompt virus.
 
 ![image](https://user-images.githubusercontent.com/40477254/110251662-27ad3380-7f47-11eb-895f-5b54ccca9d95.png)
 
+### Fire/Vaccine/InFeCtioN/more
 
+These are **extremely common** viruses which are **easy** to remove.
+Their general purpose is to lag and 
